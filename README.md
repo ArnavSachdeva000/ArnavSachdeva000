@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Arnav Sachdeva
+- 👀 I’m interested in *earning money*
+- 🌱 I’m currently learning for *JEE advance*
+- 📫 You can contact me on arnavsachdeva@proton.me
